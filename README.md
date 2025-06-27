@@ -1,1 +1,1 @@
-Description of Project: https://mayan-s.github.io/chestnut-residence-energy-management-project/
+Description of Project: https://mayan-s.github.io/chestnut-residence-redesign/
